@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything that can help build by portfolio
 - 📫 Tatepaceschool@gmail.com
 - 😄 Pronouns: Izy / azy , 他 / 他 ，or he / him are all fine
-- ⚡ Fun fact: I'm a big fan of iceclimbing
+- ⚡ Fun fact: I'm a big fan of ice climbing
 
 <!---
 TatPac/TatPac is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
